@@ -6,3 +6,6 @@ MIGHT HAVE ERRORZ!!!
 might help:
 - gamma waves binaural beat - https://www.youtube.com/watch?v=vLEek3I3wac
 - exam pass subliminal - https://www.youtube.com/watch?v=LAnpq1sTBFo
+
+
+DACA ESTI STUDENT SI AI RESURSE UTILE, FEEL FREE 2 UPLOAD HERE
