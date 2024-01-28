@@ -8,4 +8,4 @@ might help:
 - exam pass subliminal - https://www.youtube.com/watch?v=LAnpq1sTBFo
 
 
-DACA ESTI STUDENT SI AI RESURSE UTILE, FEEL FREE 2 UPLOAD HERE
+DACA ESTI STUDENT SI AI RESURSE UTILE, FEEL FREE 2 UPLOAD HERE. PULL REQUEST.
